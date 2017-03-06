@@ -1,0 +1,12 @@
+Fish:
+	Haddock:
+		http://www.food.com/recipe/baked-haddock-155017
+	Salmon	
+		http://www.thekitchn.com/how-to-cook-salmon-in-the-oven-cooking-lessons-from-the-kitchn-204559
+		
+Vinaigrette:
+	http://www.food.com/recipe/basic-vinaigrette-dressing-with-8-variations-213989
+	
+Desserts:
+	Apple Upside Down Cake
+		https://www.tastemade.com/videos/upside-down-apple-cake
