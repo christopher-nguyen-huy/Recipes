@@ -1,0 +1,1 @@
+1/2 cup of butter, melt all but 2 tablespoons of it. Mix melted butter with seasonings (I use onion powder, salt, pepper, thyme and garlic). Take cold butter, slice it into 4 thin pieces. Slide 2 pieces under the chicken's skin on either side of the breasts. Brush with the melted butter. Then bake at 350°F for a half hour per pound roughly
